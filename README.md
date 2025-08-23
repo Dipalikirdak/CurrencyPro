@@ -95,7 +95,7 @@ Submit feedback using the **feedback form** in the app or connect with me here:
 
 Author: Dipali Kirdak
 
-Email: dipalikirdak33@gmail.com
+Email: dipalikirdak08@gmail.com
 
 ---
 
